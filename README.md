@@ -1,2 +1,2 @@
 # canopee
-Expositin Arts Colegram 2020
+Exposition Arts Colegram 2020
